@@ -1,3 +1,5 @@
-Bloc 2 : Speed dating
+Bloc 5 : Projet déploiment
+
 Video: https://share.vidyard.com/watch/baRGv7B1GCABgVu44ZXtVL?
-mail: sergioandresangarita@gmail.com
+
+E-mail: sergioandresangarita@gmail.com
